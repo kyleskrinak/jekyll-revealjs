@@ -1,15 +1,7 @@
-## Vertical Slides
+#### Today's class is on 
 
-Or
+--- 
 
---
+### Faith 
+### and how faith leads us to God
 
-Even
-
---
-
-Vertical
-
---
-
-Slides

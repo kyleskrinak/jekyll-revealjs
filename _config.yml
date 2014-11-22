@@ -1,8 +1,8 @@
 # Your presentation title
-title: Jekyll and Reveal.js
+title: November 23, 2014 — Faith
 
 # The Reveal theme
-reveal_theme: default.css
+reveal_theme: sky.css
 
 # The Reveal transition
 reveal_transition: default
@@ -24,6 +24,6 @@ reveal_path: reveal.js/
 
 # Don't change anything below
 markdown: redcarpet
-pygments: true
+highlighter: true
 markdown_ext: ignoreme
 
