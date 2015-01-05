@@ -9,4 +9,5 @@ January 4, 2015
 
 --- 
 
-While students arrive — write down your movie likes and dislikes
+* While students arrive — write down your movie likes and dislikes  
+* Then start reading Chapter 8, "The Gospels" Page 84
