@@ -4,8 +4,8 @@ _7:00 - 7:05_
 
 --- 
 
-First, student reads from 1 Thessalonians on page 465 of the **Catholic Connections Handbook**
+> Volunteer reads Matthew 5:13 - 16
 
 --- 
 
-> Lord, help us to be a people who pray always, who seek you in all the circumstances of life.
+O God, guide us today as we explore what it means to be salt for the earth, and give us courage to allow your light to shine brightly through us as individuals and as Christian community. Amen.

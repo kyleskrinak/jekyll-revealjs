@@ -1,20 +1,15 @@
-## Our life in prayer
+##Jesus Teaches
 
-_January 25, 2015_
+_February 08, 2015_
 
 --- 
 
-> Rejoice always. Pray without ceasing. In all circumstances give thanks, for this is the will of God for you in Christ Jesus.
+> “You are the salt of the earth. But if salt loses its taste, with what can it be seasoned? It is no longer good for anything but to be thrown out and trampled underfoot. You are the light of the world. A city set on a mountain cannot be hidden.
 
-_1 Thessalonians 5:16 - 18_
+_Matthew 5:13 - 14_
 
 --- 
 
 ### While we wait  
-*Write down your answers to these questions*
 
-1. Identify all the **places** where you can pray to God
-1. Identify all the **times** when you can pray to God
-1. Identify all the **ways** you can pray to God
-
-
+Enjoy the popcorn and music
