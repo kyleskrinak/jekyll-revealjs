@@ -1,15 +1,15 @@
-##Jesus Teaches
+##Jesus Heals
 
-_February 08, 2015_
+_February 22, 2015_
 
 --- 
 
-> “You are the salt of the earth. But if salt loses its taste, with what can it be seasoned? It is no longer good for anything but to be thrown out and trampled underfoot. You are the light of the world. A city set on a mountain cannot be hidden.
+> “They came to Jericho. And as he was leaving Jericho with his disciples and a sizable crowd, Bartimaeus, a blind man, the son of Timaeus, sat by the roadside begging. On hearing that it was Jesus of Nazareth, he began to cry out and say, “Jesus, son of David, have pity on me.”
 
-_Matthew 5:13 - 14_
+_Mark 10:46 - 52_
 
 --- 
 
 ### While we wait  
 
-Enjoy the popcorn and music
+Draw your favorite superhero

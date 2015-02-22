@@ -4,8 +4,12 @@ _7:00 - 7:05_
 
 --- 
 
-> Volunteer reads Matthew 5:13 - 16
+> Volunteer reads Mark 10:46 - 52
 
 --- 
 
-O God, guide us today as we explore what it means to be salt for the earth, and give us courage to allow your light to shine brightly through us as individuals and as Christian community. Amen.
+O Bringer of Healing, we gather today, calling out to you for healing in our lives. We thank you for healing our bodies, hearts and minds. Fill us with a spirit of compassion so that we may bring you healing to others who are in need. Amen.
+
+--- 
+
+### Today's lesson is on Christ’s healing power
