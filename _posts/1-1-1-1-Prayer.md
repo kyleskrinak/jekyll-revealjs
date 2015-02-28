@@ -12,4 +12,6 @@ _John 15:15_
 
 ### While we wait  
 
-Draw your favorite superhero
+--- 
+
+Inflate, tie to seal, and toss balloon to the front of the room
