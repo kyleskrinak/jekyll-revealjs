@@ -4,12 +4,12 @@ _7:00 - 7:05_
 
 --- 
 
-> Volunteer reads Mark 10:46 - 52
+> Volunteer reads John 15:15
 
 --- 
 
-O Bringer of Healing, we gather today, calling out to you for healing in our lives. We thank you for healing our bodies, hearts and minds. Fill us with a spirit of compassion so that we may bring you healing to others who are in need. Amen.
+O, what a friend we have in Jesus! Lord, help us to imitate you as we share in the joys and struggles of friendship with one another. We thank you for your faithful friendship with each and every one of us! Amen.
 
 --- 
 
-### Today's lesson is on Christ’s healing power
+### Today we'll explore friendship and how Jesus is a role model for being a good friend.

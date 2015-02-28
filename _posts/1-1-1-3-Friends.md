@@ -1,10 +1,10 @@
-## Jesus Christ, Superhero
+## Prayer, Share or Dare
 
 _7:05 - 7:20_
 
 --- 
 
-### Volunteers will tell us:
+### Prayer, Share or Dare
 
 * What is your superhero's name?
 * Why is this your favorite superhero?
